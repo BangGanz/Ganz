@@ -4,3 +4,5 @@ Gw
 ganteng
 heheeh
 pal pale pale pale
+
+bombaya bombaya
